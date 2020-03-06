@@ -1,0 +1,2 @@
+# konrad
+.,mnvbcxzSDfgchjklj;k'kljhgfd
